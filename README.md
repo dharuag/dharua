@@ -1,1 +1,2 @@
 # dharua
+I  were  like is  batter mre  try agin  mor thougt  re me moreareamre fitterome saving more data more recvr e    mant  mastere more cracking omre  packing omre areamore   fitter moere more  sub   tittle re latge  size omre area roundermore   take omer  effecation more  emolation more battere more   they   her more   just more   larye more   calling more ome  nthey savin omre  body Guardheremore omre same omre  fitter emore   look more  must most   want more  largeomre   istack more m re   hum s 
